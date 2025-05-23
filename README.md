@@ -1,2 +1,0 @@
-# Mwehehehe
-#CobaAjaDulu
